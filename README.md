@@ -6,7 +6,7 @@
 
 💞️ I am actively seeking collaboration opportunities in the area of software development or game development. Working together not only enhances individual growth but also fosters a collaborative spirit that leads to innovative outcomes.
 
-📫 If you have exciting projects or are interested in collaborating in these fields, feel free to reach out to me via email: ms.khanhvy12@gmail.com. I'm always open to engaging in discussions, sharing experiences, and exploring collaboration opportunities.
+📫 If you have exciting projects or are interested in collaborating in these fields, feel free to reach out to me via email: huynhgiang.khvy@gmail.com. I'm always open to engaging in discussions, sharing experiences, and exploring collaboration opportunities.
 
 Let's connect and create something amazing together!
 
